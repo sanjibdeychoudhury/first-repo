@@ -1,3 +1,3 @@
-# Creating FOr learning
+# Creating For learning
 
 Hi, I am Sanjib
